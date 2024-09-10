@@ -1,2 +1,2 @@
 # coronatkd.github.io
-Corona Taekwondo USA Center
+Welcome to Corona Taekwondo USA Center
